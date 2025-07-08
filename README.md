@@ -5,6 +5,7 @@
 - - Email: vjhcggifgfu@outlook.com
 - - QQ: 3478204774
 - - WeChat: a_cat3478204774
+- - KOOK: https://kook.vip/U95oAa
 - - Discord: https://discord.gg/Y9PducXYem
 - - YouTube: https://www.youtube.com/channel/UCcEnFONZ7BhnkBCGJ2L8knw/
 - - Twitch: https://www.twitch.tv/xiaomian124
