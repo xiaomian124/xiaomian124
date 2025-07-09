@@ -7,7 +7,7 @@
 - - WeChat: a_cat3478204774
 - - KOOK: https://kook.vip/U95oAa
 - - Discord: https://discord.gg/Y9PducXYem
-- - YouTube: https://www.youtube.com/channel/UCcEnFONZ7BhnkBCGJ2L8knw/
+- - YouTube: https://www.youtube.com/@Acat_xiaomian124
 - - Twitch: https://www.twitch.tv/xiaomian124
 <!---
 xiaomian124/xiaomian124 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
